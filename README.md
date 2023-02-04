@@ -1,0 +1,1 @@
+# Practic_7_Zadanie1and2
